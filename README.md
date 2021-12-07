@@ -1,6 +1,6 @@
 ### Hello There 👋🏻, welcome to my GitHub profile.
 
-Let me introduce you about myself, my name is ABHI SINGH; 17 y.o from Indonesia. My hobby is Listening music, Playing Game, design & create logos, images.
+Let me introduce you about myself, my name is ABHI SINGH; 17 y.o from Rajasthan, India. My hobby is Listening music, Playing Game, design & create logos, images.
 
 Other thing you need to know:
 
